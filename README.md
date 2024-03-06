@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MParadz
+- 👀 I’m interested in coding somewhat
+- 🌱 I’m currently learning FERIT OS 
+- 📫 How to reach me no
